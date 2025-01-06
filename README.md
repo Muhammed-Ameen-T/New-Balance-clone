@@ -1,1 +1,1 @@
-# New Balnce statics clone website Homepage
+# New Balnce statics clone website Homepages
